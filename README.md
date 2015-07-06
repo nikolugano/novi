@@ -1,1 +1,1 @@
-# novi
+# novi kurac
