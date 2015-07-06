@@ -1,2 +1,2 @@
-# novi kurac
+# novi kurac moj
 
