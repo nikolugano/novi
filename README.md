@@ -1,1 +1,2 @@
-# novi fajl, jebes mu mater
+# novi kurac
+
