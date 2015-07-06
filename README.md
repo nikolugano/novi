@@ -1,1 +1,1 @@
-# novi
+# novi fajl, jebes mu mater
